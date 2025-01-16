@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Freelancer for 1+ year<br>💕 Madly Love with frontend<br>🌱 Eager to learn new things<br>💬 Ask me about ___ (Idk)
+🔭 Freelancer for 2+ year<br>💕 Madly Love with frontend<br>🌱 Eager to learn new things<br>💬 Ask me about ___ (Idk)
 
 
 ## 🌐 Socials:
